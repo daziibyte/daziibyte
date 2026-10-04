@@ -1,4 +1,4 @@
-## mother russia 
-![Alt Text](023AB0A6-DCF5-46DB-9D5F-E06C1EBBC331.gif)
+## stan
+![Alt Text](FE31C2A8-C46F-4545-861D-22F5F9C7B2F1.gif))
 
 
