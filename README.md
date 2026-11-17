@@ -1,4 +1,2 @@
-## stan
-![Alt Text](FE31C2A8-C46F-4545-861D-22F5F9C7B2F1.gif))
-
-
+<p align=“center”
+<img width="1280" height="220" alt="IMG_1866" src="https://github.com/user-attachments/assets/6434a70e-a1ef-4a8f-897a-3c49bc11d61d" />
