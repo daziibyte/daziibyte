@@ -7,7 +7,11 @@
 <p align=“center”>
   
   <img width="2048" height="1204" alt="Untitled531_20261117231543" src="https://github.com/user-attachments/assets/feebb8d0-aed5-4b2d-b2da-c4ebf700551a" />
-  
+
+<img width="1800" height="1800" alt="Untitled532_20261118142148" src="https://github.com/user-attachments/assets/6630ef48-fe84-4e71-af8c-99b398848123" />
+
+***
+ 
 <p align="center">
 𝑖  ♥︎  𝑏𝑒𝑎𝑡𝑟𝑖𝑐𝑒
 </p>
