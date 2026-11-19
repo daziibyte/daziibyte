@@ -13,7 +13,7 @@
 <img width="2610" height="1322" alt="Untitled533_20261118151420" src="https://github.com/user-attachments/assets/5567d7d8-21b8-4400-a1b4-bcac7c544a18" />
 
 <img width="2610" height="1322" alt="Untitled533_20261118155150" src="https://github.com/user-attachments/assets/da94f2dc-d7f5-43f7-a815-8e417adb0974" />
-[sign ata!](https://alfie.atabook.org)
+
 ***
  
 <p align="center">
